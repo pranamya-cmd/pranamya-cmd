@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pranamyaupreti
-- 👀 I’m interested in playig,ridig
+- 👀 I’m interested in playing,riding
 - 🌱 I’m currently learning BIT
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
